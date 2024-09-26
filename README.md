@@ -1,6 +1,6 @@
 # 一枝红杏机场地址
 
-最新地址：[yizhihongxing.org](https://order.yizhihongxing.org/aff.php?aff=16951)
+最新地址：[yizhihongxing.org](https://order.yizhihongxing.club/aff.php?aff=16951)
 
 ## 简介
 
